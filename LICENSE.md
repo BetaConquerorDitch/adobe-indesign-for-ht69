@@ -1,4 +1,4 @@
-
+elite Panel for Adobe InDesign for macOS - color correction and blend modes is the best Adobe InDesign for macOS panel, featuring color correction and blend modes. Safe,
 
 
 
